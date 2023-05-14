@@ -1,0 +1,1 @@
+# n-n-3k-n-6k-series-with-loop
